@@ -1,3 +1,3 @@
 # bookbot
 
-BookBot is my first project!
+My wife Is going to love this!
